@@ -1,0 +1,1 @@
+za warudo(the world) - time stops!
